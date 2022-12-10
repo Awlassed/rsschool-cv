@@ -1,4 +1,4 @@
-# NATALIA FILOZOFOVICH CV
+# NATALIYA FILOZOFOVICH CV
 ## Contacts:
 mazzdaj@gmail.com - preferred
 ## Location:
